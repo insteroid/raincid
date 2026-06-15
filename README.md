@@ -4,5 +4,6 @@
 
 ### ‎<p align="center"> <b>my socials
 ### ‎<p align="center"> <b>[ATA](https://raincid.atabook.org) | [X](https://x.com/insteroid)</b></p>
-
+<br>
+<br>
 <p align="center"><img src="https://cdn.discordapp.com/attachments/1125436376842780712/1516133662813323365/blur_edges_2.png?ex=6a318901&is=6a303781&hm=d00fa7c648b36b5ad82fe2bf9dde0cb1ea43795e7f99411497417d0e3e5528ac"</p>
