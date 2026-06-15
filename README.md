@@ -1,5 +1,5 @@
 
 
-### ‎<p align="center"> <b>[ata](https://buck.atabook.org) [x.](https://x.com/insteroid)
+### ‎<p align="center"> <b>[ata](https://raincid.atabook.org/)) [x.](https://x.com/insteroid)
 
 
